@@ -1,1 +1,1 @@
-acesse zezeniabot.lovable.app para saber como funciona
+acesse  https://zezeniabot.lovable.app/ para saber como funciona
